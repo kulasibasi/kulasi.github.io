@@ -1,2 +1,2 @@
-# kulasibasilatchibachilatchiko
+# kulas
 webpage ni kulas
