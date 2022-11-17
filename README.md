@@ -9,5 +9,3 @@
 
 
 
-
-![Waiting-Room-phoebe 2](https://user-images.githubusercontent.com/118235613/202339917-1e1418b3-56a2-4d7f-a2f2-fd9e2de9a31e.jpg)
