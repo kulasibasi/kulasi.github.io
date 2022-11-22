@@ -17,3 +17,7 @@
 > In a 2020 interview, Bridgers reveals that [Waiting Room](https://open.spotify.com/track/04mAOoQNsXmDJlyupJwmkO?si=29bef054446b4f92), released to spotify in 2016 was a song a younger, 16 year old Phoebe wrote somewhere in highschool.
 
 [![waiting room interview 1](https://user-images.githubusercontent.com/118235613/203202887-634f17aa-3e3f-4847-9240-c616313f0100.PNG)](https://www.npr.org/transcripts/938316518)
+
+> It is speculated among fans that Bridgers dislikes this song. With there being claims that Bridgers regards the song as being "too dramatic." Moreover, there have only been four recorded live performances of this song, with two coming from before her rise in popularity and the other two being just of recent upon fans' request.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cgJLXrOtASc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
