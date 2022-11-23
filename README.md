@@ -36,5 +36,5 @@
 > The third and fourth lines are no different, with the singer showing their undying love and also yearning to be an active part of this person's life.
 > The fifth line however is a complete change. The fifth line can be interpreted as inside, the singer has already acknowledged and has accepted how futile this yearning is and is brought back to reality and reassures themselves with the line 'I know it's for the better.'
 
-
+bfw
 
