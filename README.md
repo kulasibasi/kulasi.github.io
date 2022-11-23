@@ -27,5 +27,11 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/cgJLXrOtASc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 > With a span of six and a half minutes, Waiting Room is one of Phoebe's longer and less popular songs but definitely having a place in the hearts of the Pharbz or Phoebe's fanbase. Moreover, the song itself starts off acoustic and ends with an uproar of instruments; that almost of a ballad. A melancholic ballad, as the song's lyrics and Phoebe's singing reflects that of yearning and wanting something seemingly at arm's reach but still unattainable.
+> Looking at the song's structure, it is an unconventional song approach as it follows a verse-verse-chorus pattern with the chorus being the words 'know it's for the better' repeated over and over again which is longer and progressively louder than the two verses combined. Moreover, I interpret this as the singer's undying and unhealthy yearning for this person which I and many other avid fans of Waiting Room relate to.
+
+[![Capture gi](https://user-images.githubusercontent.com/118235613/203459736-cd7526cf-4814-4629-a57f-7a57e492c273.jpg)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
+
+
+
 
 
