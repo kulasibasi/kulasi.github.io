@@ -30,7 +30,7 @@
 > Looking at the song's structure, it is an unconventional song approach as it follows a verse-verse-chorus pattern with the chorus being the words 'know it's for the better' repeated over and over again which is longer and progressively louder than the two verses combined. Moreover, I interpret this as the singer's undying and unhealthy yearning for this person which I and many other avid fans of Waiting Room relate to.
 
 [![Capture gi](https://user-images.githubusercontent.com/118235613/203459736-cd7526cf-4814-4629-a57f-7a57e492c273.jpg)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
-
+The song starts with a student-teacher analogy for someone the singer likes. One may interpret this as from the start, the connection the singer yearns for has been problematic from the start. And the singer relating them to a teacher could mean something about this person having authority over the singer by simply existing.
 
 
 
