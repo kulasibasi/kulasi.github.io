@@ -38,5 +38,9 @@
 
 [![Capture e2y12](https://user-images.githubusercontent.com/118235613/203667658-7913393b-d62a-4a23-9850-13edc6651522.jpg)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
 
+> The first line of the second verse reminds me of when a Syrian boy's dead body was found ashore in Greece after fleeing the war during the Syrian Migrant crisis. I interpret this as with all the bad things going on in the world, the singer feels guilty for wanting this connection so bad in the lines 'who am I to ask for more?'
+> The second line is a personal favorite of mine, *'But you're breathing in my open mouth, you're the gun in my lips that will blow my brains out.'* This line is so powerful to me as the singer recognizes the person they love so as the reason they live (breathing in my open mouth = CPR = life) but also is a trigger for their self-destruction and is also the reason why they *need* them in order to live in the first place.
+> The following lines only add to the singer's love and obsession and is also revealed that the singer is a teenage girl.
+> It is also worth nothing that althroughout the first and second verses, the lines shift from 'if you', 'I want' into 'I can', 'I know' and 'you are' showing the singer's slow progression into realizing that this connection is never and never has been for them.
 
-
+[![image](https://user-images.githubusercontent.com/118235613/203669390-d0424e25-aad2-4e87-a480-a6608d9c4340.png)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
