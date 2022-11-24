@@ -21,6 +21,7 @@
 
 > It is speculated among fans that Bridgers dislikes this song. With there being claims that Bridgers regards the song as being "too dramatic." Moreover, there have only been four recorded live performances of this song, with two coming from before her rise in popularity and the other two being just of recent upon fans' request.
 
+
 ---
 ### On Waiting Room,
 
@@ -46,3 +47,5 @@
 [![image](https://user-images.githubusercontent.com/118235613/203669390-d0424e25-aad2-4e87-a480-a6608d9c4340.png)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
 
 > The song ends with the chorus with the line 'Know it's for the better' repeated 35 times. The chorus is the ultimate culmination of the singer's feelings and finally accepting that despite everything that she wanted from her love interest, it was not for her and she retreats to comforting herself with telling herself that it's for the better. It is also worth nothing that at the start of the chorus, it almost sounds like she's saying 'No, it's for the better' with her being in denial at first due to her intense feelings. 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AMGTUg_mECQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
