@@ -31,10 +31,12 @@
 
 [![Capture gi](https://user-images.githubusercontent.com/118235613/203459736-cd7526cf-4814-4629-a57f-7a57e492c273.jpg)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
 
-> The song starts with a student-teacher analogy for someone the singer likes. One may interpret this as from the start, the connection the singer yearns for has been problematic from the start. And the singer relating them to a teacher could mean something about this person having authority over the singer by simply existing.
+> The song starts with a student-teacher analogy for someone the singer likes. One may interpret this as the connection the singer yearns for has been problematic from the start. And the singer relating them to a teacher could mean something about this person having authority over the singer by simply existing.
 > The second line has themes of self-destruction and self-sabotage. Where despite the singer has the tools and the capability to get over this infatuation and move on to something better, they choose to bleed out in the pain that is unrequited love.
 > The third and fourth lines are no different, with the singer showing their undying love and also yearning to be an active part of this person's life.
 > The fifth line however is a complete change. The fifth line can be interpreted as inside, the singer has already acknowledged and has accepted how futile this yearning is and is brought back to reality and reassures themselves with the line 'I know it's for the better.'
 
-bfw
+[![Capture e2y12](https://user-images.githubusercontent.com/118235613/203667658-7913393b-d62a-4a23-9850-13edc6651522.jpg)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
+
+
 
