@@ -44,3 +44,5 @@
 > It is also worth nothing that althroughout the first and second verses, the lines shift from 'if you', 'I want' into 'I can', 'I know' and 'you are' showing the singer's slow progression into realizing that this connection is never and never has been for them.
 
 [![image](https://user-images.githubusercontent.com/118235613/203669390-d0424e25-aad2-4e87-a480-a6608d9c4340.png)](https://genius.com/Phoebe-bridgers-waiting-room-lyrics)
+
+> The song ends with the chorus with the line 'Know it's for the better' repeated 35 times. The chorus is the ultimate culmination of the singer's feelings and finally accepting that despite everything that she wanted from her love interest, it was not for her and she retreats to comforting herself with telling herself that it's for the better. It is also worth nothing that at the start of the chorus, it almost sounds like she's saying 'No, it's for the better' with her being in denial at first due to her intense feelings. 
