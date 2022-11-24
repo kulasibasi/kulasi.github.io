@@ -49,3 +49,9 @@
 > The song ends with the chorus with the line 'Know it's for the better' repeated 35 times. The chorus is the ultimate culmination of the singer's feelings and finally accepting that despite everything that she wanted from her love interest, it was not for her and she retreats to comforting herself with telling herself that it's for the better. It is also worth nothing that at the start of the chorus, it almost sounds like she's saying 'No, it's for the better' with her being in denial at first due to her intense feelings. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AMGTUg_mECQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+> In a live performance of this song, Phoebe takes a gentler, subtler but undoubtedly emotional take on the song. In this version specifically too, she cuts the chorus shorter and adds a new line.
+
+## I never grew up with you, and you're not my waiting room.
+
+> This line to me is Phoebe herself finding acceptance and genuinely moving on which we were unsure of in the recorded version.
