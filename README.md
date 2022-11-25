@@ -52,6 +52,6 @@
 
 > In a live performance of this song, Phoebe takes a gentler, subtler but undoubtedly emotional take on the song. In this version specifically too, she cuts the chorus shorter and adds a new line.
 
-## I never grew up with you, and you're not my waiting room.
+### 'I never grew up with you, and you're not my waiting room.'
 
 > This line to me is Phoebe herself finding acceptance and genuinely moving on which we were unsure of in the recorded version.
